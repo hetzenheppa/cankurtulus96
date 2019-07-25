@@ -1,1 +1,0 @@
-# cankurtulus96
